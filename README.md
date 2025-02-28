@@ -14,8 +14,11 @@ ____
 ### <p align="center">this world always gives me love and fear
 # <p align="center">∞
 
-<p align="center"> <img src="https://media1.tenor.com/m/JxOPntQrz-QAAAAd/xdinary-heroes-xdhluvs.gif"<width="130" height="130">
+<p align="center"> <img src="https://media.tenor.com/WFby2jaWmacAAAAj/txt-ppulbatu.gif"<width="130" height="130">
 <img src="https://media.tenor.com/LfXkK-A6b-8AAAAd/gaon-xdinary-heroes.gif"<width="130" height="130">
-<img src="https://media1.tenor.com/m/KNf66AMlIWAAAAAd/gaon-heart-xdinary-heroes.gif"<width="130" height="130">
+<img src="https://media1.tenor.com/m/zk5HWRxLuBIAAAAd/beomgyu-cutie-%EB%B2%94%EA%B7%9C.gif"<width="130" height="130">
 <img src="https://media1.tenor.com/m/SdF8q7C4Z78AAAAd/xdinary-heroes-gaon-xdinary-heroes-jiseok.gif"<width="130" height="130">
-<img src="https://media.tenor.com/EqwXD8Ij1CYAAAAM/xdinary-heroes-gaon.gif"<width="130" height="130">
+<img src="https://media1.tenor.com/m/XEG1y6PbO3gAAAAd/byuntear-txt.gif"<width="130" height="130">
+<img src="https://media1.tenor.com/m/JxOPntQrz-QAAAAd/xdinary-heroes-xdhluvs.gif"<width="130" height="130">
+<img src="https://media1.tenor.com/m/k5L6bvfqi1cAAAAd/beomgyu-txt.gif"<width="130" height="130">
+<img src="https://media.tenor.com/0px_qIBQaBQAAAAj/ppulbatu-dagonyang.gif"<width="130" height="130">
