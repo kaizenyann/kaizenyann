@@ -1,5 +1,5 @@
 ### <p align="center"> ![](https://komarev.com/ghpvc/?username=kaizenyann&color=blue)
-### <p align="center"> ![image](https://i.pinimg.com/736x/00/28/f0/0028f08441de3cb7d995324011159c9e.jpg)
+### <p align="center"> ![image](https://i.pinimg.com/736x/ae/7d/f8/ae7df81edf26048cba80730e57a41cec.jpg)
 ### <p align="center">넌 내 왕관이 되지
 ### <p align="center">   두근두근 두근대는 감각  。°˖ ✧
 ____ 
