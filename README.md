@@ -7,7 +7,7 @@ ____
 ### <p align="center">my socials
 ### ∘₊✧───── [вк](https://vk.com/kaizenyan)
 ### ∘₊✧───── [тг](https://t.me/kaizenyan)
-### ∘₊✧───── [щп](https://t.me/+TPKmld_9wDRkNDhi)
+### ∘₊✧───── [щп](https://t.me/+stjgNbgL17g0MzVi)
 <p align="center"> :3
   
 ____
