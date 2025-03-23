@@ -7,7 +7,7 @@ ____
 ### ∘₊✧───── [вк](https://vk.com/kaizenyan)
 ### ∘₊✧───── [тг](https://t.me/kaizenyan)
 ### ∘₊✧───── [щп](https://t.me/+stjgNbgL17g0MzVi)
-<p align="center"> :3
+<p align="center"> <img src="https://static.wikia.nocookie.net/danganronpa/images/3/3f/Nagito_Komaeda_Island_Mode_Icon.png/revision/latest?cb=20170218094824"<width="30" height="30">
   
 ____
   
