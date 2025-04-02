@@ -1,6 +1,6 @@
 ### <p align="center"> ![](https://komarev.com/ghpvc/?username=kaizenyann&color=blue)
-### <p align="center">넌 내 왕관이 되지
-### <p align="center">   두근두근 두근대는 감각  。°˖ ✧
+### <p align="center">no way to break away
+### <p align="center">      you're caught in lies that never end
 ____ 
 
 ### <p align="center">my socials
@@ -11,8 +11,8 @@ ____
   
 ____
   
-### <p align="center"> 심장은 대혼란
-### <p align="center"> but I love it
+### <p align="center"> why don't you wave your flag
+### <p align="center"> oh, is it white?
 # <p align="center">∞
 
 <p align="center"> <img src="https://media.tenor.com/WFby2jaWmacAAAAj/txt-ppulbatu.gif"<width="130" height="130">
