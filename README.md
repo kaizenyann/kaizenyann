@@ -48,6 +48,6 @@ ____
   
 ____
 
-### <p align="center"> me n my gf
+### <p align="center"> -ˋ₊˚. me n my [gf](https://github.com/ebatHarvey) !
 <p align="center"> <img src="https://media1.tenor.com/m/IrPd2m1R0GUAAAAC/xiaoven-venxiao.gif"<width="200" height="200">
 <img src="https://media1.tenor.com/m/rJ9q1IMK8soAAAAC/xiaoven-venxiao.gif"<width="200" height="200">
