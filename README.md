@@ -45,9 +45,3 @@ ____
 <img src="https://media1.tenor.com/m/94L3EavI1LwAAAAC/kuroaka-yuri.gif"<width="130" height="130">
 <img src="https://media1.tenor.com/m/SdF8q7C4Z78AAAAd/xdinary-heroes-gaon-xdinary-heroes-jiseok.gif"<width="130" height="130">
 <img src="https://c.tenor.com/dYXnUtDP3jAAAAAC/tenor.gif"<width="130" height="130">
-  
-____
-
-### <p align="center"> -ˋ₊˚. me n my [gf](https://github.com/ebatHarvey) !
-<p align="center"> <img src="https://media1.tenor.com/m/IrPd2m1R0GUAAAAC/xiaoven-venxiao.gif"<width="200" height="200">
-<img src="https://media1.tenor.com/m/rJ9q1IMK8soAAAAC/xiaoven-venxiao.gif"<width="200" height="200">
