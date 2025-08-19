@@ -6,7 +6,7 @@ ____
 
 ### <p align="center">my socials
 ### ∘₊✧───── [вк](https://vk.com/kaizenyan)
-### ∘₊✧───── [тг](https://t.me/kaizenyan)
+### ∘₊✧───── [тг](https://t.me/n4g1t0)
 <p align="center"> я не против новых знакомств, feel free to interact w/me :3
   
 ____
