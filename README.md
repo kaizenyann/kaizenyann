@@ -1,7 +1,7 @@
 ### <p align="center"> ![](https://komarev.com/ghpvc/?username=kaizenyann&color=blue)
 
-### <p align="center">it's filthy, disgusting, so ugly,
-### <p align="center">   i'm sure
+### <p align="center">such a lonely day
+### <p align="center">   and it's mine
 ____ 
 
 ### <p align="center">my socials
@@ -11,7 +11,7 @@ ____
   
 ____
   
-### <p align="center"> i'm ugly, disgusting and filthy
-### <p align="center"> for sure
+### <p align="center"> the most loneliest day
+### <p align="center"> of my life
 # <p align="center">ꕤ
 
