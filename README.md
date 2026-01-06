@@ -1,4 +1,4 @@
-### <p align="center"> ![](https://komarev.com/ghpvc/?username=kaizenyann&color=blue)
+### <p align="center"> ![](https://komarev.com/ghpvc/?username=kaizenyann&color=gray)
 
 ### <p align="center">such a lonely day
 ### <p align="center">   and it's mine
@@ -14,4 +14,8 @@ ____
 ### <p align="center"> the most loneliest day
 ### <p align="center"> of my life
 # <p align="center">ꕤ
+
+
+
+
 
