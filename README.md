@@ -4,7 +4,7 @@
 ### <p align="center"> <div id="badges">
 <div id="badges">
   <a href="https://t.me/n4g1t0">
-<p align="center">    <img src="https://img.shields.io/badge/тг-red?style=for-the-badge&logo=telegram&logoColor=white" alt="Telegram Badge"/>
+<p align="center"><img src="https://img.shields.io/badge/тг-red?style=for-the-badge&logo=telegram&logoColor=white" alt="Telegram Badge"/>
   </a>
    <a href="https://vk.com/kaizenyan">
     <img src="https://img.shields.io/badge/вк-red?style=for-the-badge&logo=vk&logoColor=white" alt="vk Badge"/>
