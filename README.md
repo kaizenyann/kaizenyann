@@ -1,5 +1,5 @@
 ### <p align="center"> ![](https://komarev.com/ghpvc/?username=kaizenyann&color=red)
-### <p align="center"> <img src="https://64.media.tumblr.com/c6ab28bf391904e7ace3bc8a932ed812/8c2165ecbd6822b2-90/s1280x1920/caa4e8c28f33c3f2bf648bcd56394c76c77adcc4.gifv" width="300" height="200">
+### <p align="center"> <img src="https://github.com/user-attachments/assets/d64b97f3-095a-4879-b5b7-3447fad77117" width="500" height="400">
 ### <p align="center"> <img src="https://64.media.tumblr.com/62c8169afd5d24be02ca7e79a5206c2d/dff12cee82362a3a-74/s1280x1920/4c91da9e269dd3f5ea221d72543e5d654eeaede7.pnj" width="300" height="200">
 ### <p align="center"> <div id="badges">
 <div id="badges">
