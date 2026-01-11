@@ -3,7 +3,7 @@
 ### <p align="center"> <img src="https://64.media.tumblr.com/62c8169afd5d24be02ca7e79a5206c2d/dff12cee82362a3a-74/s1280x1920/4c91da9e269dd3f5ea221d72543e5d654eeaede7.pnj" width="300" height="200">
 ### <p align="center"> <div id="badges">
 <div id="badges">
- <p align="center"> <a href="https://t.me/n4g1t0">
+ <p align="center"> <a href="https://t.me/kaizen1nfo">
   <img src="https://img.shields.io/badge/тг-red?style=for-the-badge&logo=telegram&logoColor=white" alt="Telegram Badge"/>
  </a>
    <a href="https://vk.com/kaizenyan">
