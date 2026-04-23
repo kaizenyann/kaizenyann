@@ -7,4 +7,4 @@
     <img src="https://img.shields.io/badge/вк-grey?style=for-the-badge&logo=vk&logoColor=white" alt="vk Badge"/>
   </a>
 </div>
- <p align="center"><p align="center"> я не против новых знакомств, feel free to interact w/me :3
+ <p align="center"><p align="center"> я не против новых знакомств, feel free to interact w/me
