@@ -1,6 +1,6 @@
 ### <p align="center"> ![](https://komarev.com/ghpvc/?username=kaizenyann&color=gray)
 <div id="badges">
- <p align="center"> <a href="https://t.me/kaizen1nfo">
+ <p align="center"> <a href="https://t.me/m/lJPeT65QNzIy">
   <img src="https://img.shields.io/badge/тг-grey?style=for-the-badge&logo=telegram&logoColor=white" alt="Telegram Badge"/>
  </a>
    <a href="https://vk.com/kaizenyan">
